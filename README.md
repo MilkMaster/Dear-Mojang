@@ -35,9 +35,21 @@ http://www.bilibili.com/video/av13794097/<br>
 https://www.zhihu.com/question/62521733/answer/199881822<br>
 https://www.zhihu.com/question/46545923<br>
 http://www.mcbbs.net/thread-732039-1-1.html<br>
-http://www.mcbbs.net/thread-732563-1-1.html<br><br><br>
+http://www.mcbbs.net/thread-732563-1-1.html<br>
+<br>
+<br>
 
-
+ ----------------------   
+ 
+![](/img/1.png)
+![](/img/2.png)
+![](/img/3.png)
+![](/img/4.png)
+![](/img/5.png)
+![](/img/6.png)
+![](/img/7.png)
+![](/img/8.png)
+![](/img/9.png)
 
 
 
@@ -45,7 +57,26 @@ http://www.mcbbs.net/thread-732563-1-1.html<br><br><br>
 
 
  ----------------------                       
+ 
 I guarantee the authenticity of all of the above<br>
 You can go to http://www.bilibili.com/video/av13794097/<br>
 Check out the following thousands of negative comments from Chinese players to see if NetEase are eligible for agency.<br>
 The content may be changed, I will send again Sincerely Yours, millions of Minecraft player from china<br>
+<br><br><br>
+<br><br><br>
+<br><br><br>
+
+ ----------------------    
+ 
+![](/img/10.png)
+![](/img/11.png)
+![](/img/12.png)
+![](/img/13.png)
+![](/img/14.png)
+![](/img/15.png)
+![](/img/16.png)
+![](/img/17.png)
+![](/img/18.png)
+![](/img/19.png)
+![](/img/20.png)
+![](/img/21.png)
