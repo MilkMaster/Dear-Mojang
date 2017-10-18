@@ -68,9 +68,9 @@ The content may be changed, I will send again Sincerely Yours, millions of Minec
 
  ----------------------    
  
-![](/img/10.png)
-![](/img/11.png)
-![](/img/12.png)
+![](/img/10.jpg)
+![](/img/11.jpg)
+![](/img/12.jpg)
 ![](/img/13.png)
 ![](/img/14.png)
 ![](/img/15.png)
@@ -78,5 +78,5 @@ The content may be changed, I will send again Sincerely Yours, millions of Minec
 ![](/img/17.png)
 ![](/img/18.png)
 ![](/img/19.png)
-![](/img/20.png)
-![](/img/21.png)
+![](/img/20.jpg)
+![](/img/21.jpg)
